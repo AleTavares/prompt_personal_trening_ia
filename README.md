@@ -1,1 +1,0 @@
-# prompt_personal_trening_ia
